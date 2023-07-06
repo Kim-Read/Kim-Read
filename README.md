@@ -5,3 +5,4 @@
 
 - ⚡🤓 I'm a huge fan of all things Harry Potter.
 - 🗣️ I have been told I talk excessively.
+- FUN FACT: For those who are in the know....I used to be a metrognome. #ifyouknowyouknow
